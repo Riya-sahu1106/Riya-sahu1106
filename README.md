@@ -1,5 +1,5 @@
 # 💫 Hi 👋, I'm Riya Sahu  
-**Aspiring Software Developer | Java Enthusiast | UI/UX Learner from India 🇮🇳**
+**Aspiring Software Developer | Java Enthusiast 
 
 📧 Email Me 👉 **riyasahu885542@gmail.com** (for collaboration / projects / opportunities)
 
